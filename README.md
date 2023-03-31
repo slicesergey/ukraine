@@ -1,1 +1,1 @@
-credit:sergeyslice
+credit:slice
