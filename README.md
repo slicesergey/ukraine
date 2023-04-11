@@ -1,4 +1,3 @@
-Translation
 [while approaching the victim]"Hold on, hold on....Be neater, fuck!" - probably saying that to watch out for the blood.
 
 *Laughing*
